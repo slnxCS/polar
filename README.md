@@ -1,4 +1,5 @@
 ![Dancing Cow](https://media1.tenor.com/m/Auk7dhgC6xMAAAAd/meme-polish-cow.gif)
+![ScreenShot](Снимок.PNG)
 
 ЛУЧШИЙ ЯЗЫК
       @Linus Torvalds
